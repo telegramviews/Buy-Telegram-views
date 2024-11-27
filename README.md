@@ -1,4 +1,4 @@
-<h1>Buy Telegram views</h1>
+<h2>Buy Telegram views</h2>
 Strategic Boost your channel with [buy Telegram views](https://buy-member.com/buy-telegram-post-view/) bot
 Take order with this source everything u want, we Use this source for take order of [Telegram members](https://buy-member.com/), [Telegram views](https://buy-member.com/telegram-view/) and [Telegram subscribers](https://buy-member.com/%D8%AE%D8%B1%DB%8C%D8%AF-%D8%B9%D8%B6%D9%88-%D9%88-%D9%85%D9%85%D8%A8%D8%B1-%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85/).
 
